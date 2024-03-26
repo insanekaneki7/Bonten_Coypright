@@ -1,3 +1,8 @@
+  ⚡𝐊𝐀𝐍𝐄𝐊𝐈 𝐂𝐎𝐏𝐘𝐑𝐈𝐆𝐇𝐓©⚡
+
+  THIS IS A COPYRIGHT PROTECTION🛡️
+
+<img src="https://graph.org/file/f6393cdc949b95400433a.jpg">
 
 <p align="center">
 <b>𝗗𝗘𝗣𝗟𝗢𝗬𝗠𝗘𝗡𝗧 𝗠𝗘𝗧𝗛𝗢𝗗𝗦</b>
